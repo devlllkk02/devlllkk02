@@ -7,7 +7,6 @@
 <br />
 - 🌱 I'm currently studying for Bsc. (Hons.) in IT at University of Moratuwa </br>
 - 💻 Connect with me on **[LinkedIn]** </br>
-- 📫 How to reach me **naveenlllkk02@gmail.com** </br>
 - 📝 I studied at St. Joseph's College  </br>
 - 💬 Ask me about: anything, I am happy to help 
 <br><br><br><br>
